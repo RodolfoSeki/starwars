@@ -6,6 +6,8 @@ Conhecemos o personagem Anakin. Outros personagens tambem aparecem nesse episodi
 
 ## Episodio 02: O Ataque dos Clones
 
+Agora o Anakin é um aprendiz de Jedi.
+
 ## Episodio 03: A Revolta dos Siff
 
 ## Episodio 04: Uma Nova Esperança
