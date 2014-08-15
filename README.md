@@ -14,6 +14,8 @@ Sem spoilers!
 
 ## Episodio 04: Uma Nova Esperança
 
+Começa muitos anos depois do episodio anterior
+
 ## Episodio 05: O Imperio Contra-Ataca
 
 O personagem Luke comeca seu treinamento Jedi.
