@@ -21,3 +21,5 @@ Começa muitos anos depois do episodio anterior
 O personagem Luke comeca seu treinamento Jedi.
 
 ## Episodio 06: O Retorno de Jedi
+
+Sem Spoilers!
